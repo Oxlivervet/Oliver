@@ -4,7 +4,7 @@
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        ੈ✧̣̇˳·˖✶   ✦　
 
    
-![image alt](https://github.com/Oxlivervet/Oliver/blob/0f66f4f39eb98973dbfcd30f8f6f5937eb9009dd/ff512be47424601dfdd2b8c39c0bc819.jpg]
+![image alt](ff512be47424601dfdd2b8c39c0bc819.jpg]
    
    ┆　┆　┆　┆　┆
 ┆　┆  ࣪ ˖☆ ࣪⭑┆ ݁˖ .☆ . ݁ ˖ 
