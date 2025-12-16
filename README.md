@@ -4,7 +4,7 @@
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        ੈ✧̣̇˳·˖✶   ✦　
 
    
-![image alt](ff512be47424601dfdd2b8c39c0bc819.jpg]
+![image alt][ff512be47424601dfdd2b8c39c0bc819.jpg]
    
    ┆　┆　┆　┆　┆
 ┆　┆  ࣪ ˖☆ ࣪⭑┆ ݁˖ .☆ . ݁ ˖ 
