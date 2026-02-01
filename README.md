@@ -30,6 +30,8 @@ You can call me Oliver or flins !♥︎•``,,''
 𝑰𝒇 𝛪 𝑴𝒐𝒔𝒕𝒍𝒚 𝑫𝒐𝒏𝒕 𝑹𝒆𝒑𝒍𝒚 𝑰𝒎 𝑷𝒓𝒐𝒃𝒂𝒃𝒍𝒚 𝑴𝒖𝒕𝒆𝒅 𓈒⟡₊⋆∘
 
 
+![enstars](fortnightly-help-and-information-thread-v0-1gin1765fzde1)
+
                𝚙𝚕𝚎𝚊𝚜𝚎 𝙳𝚘𝚗𝚝 𝙲𝚘𝚙𝚢 𝚂𝚒𝚛/𝙼𝚊'𝚊𝚖𓏲𝄢˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦
           ─ ⊹ ⊱ ☆ ⊰ ⊹ ─
