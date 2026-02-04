@@ -18,7 +18,7 @@ You can call me Oliver or flins !♥︎•``,,''
 　　. 
 𝙷𝚎/𝚑𝚒𝚖 ⋆.˚ ᡣ𐭩 .𖥔˚
 
-𝐹𝑖★𝜏𝜀𝜀𝜂 ‧₊ ᵎᵎ 🍎 ⋅ ˚✮
+S𝑖★𝜏𝜀𝜀𝜂 ‧₊ ᵎᵎ 🍎 ⋅ ˚✮
 
 
 ![BLEH!](VpAnVab.gif)
