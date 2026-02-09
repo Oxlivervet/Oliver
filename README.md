@@ -4,7 +4,7 @@ You can call me Oliver or flins !♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![GAY!](ff512be47424601dfdd2b8c39c0bc819.jpg)
+![FUCK!](VpAnVab.gif)
 
 
    
