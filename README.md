@@ -21,7 +21,7 @@ You can call me Oliver or flins !♥︎•``,,''
 S𝑖★𝜏𝜀𝜀𝜂 ‧₊ ᵎᵎ 🍎 ⋅ ˚✮
 
 
-![FUH!](0f312dfb2c1b0f80e10c69760a840024)
+![FUH!](04b92435c7b7de52d1f8b502a6e1e9c3 (1).gif)
 
 
 
