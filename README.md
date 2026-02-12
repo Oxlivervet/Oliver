@@ -15,7 +15,7 @@ You can call me Oliver or flins !♥︎•``,,''
 　　. 
 𝙷𝚎/𝚑𝚒𝚖 ⋆.˚ ᡣ𐭩 .𖥔˚
 
-S𝑖★𝜏𝜀𝜀𝜂 ‧₊ ᵎᵎ 🍎 ⋅ ˚✮
+I Ap★l★gize If I Am Rude—‧₊ ᵎᵎ 🍎 ⋅ ˚✮
 
 
 𓈒⟡₊⋆∘𝓑𝓲𝓼𝓮𝔁𝓾𝓪𝓵𓏲𝄢
