@@ -16,7 +16,7 @@ You can call me Oliver or Oli!♥︎•``,,''
 𝙷𝚎/𝚑𝚒𝚖 ⋆.˚ ᡣ𐭩 .𖥔˚
 ₊ ᵎᵎ 🍎 ⋅ ˚✮
 
-![MEOW!](3922169d403c173fb21242622dd1ead5.gif)
+![MEOW!](905478058f88a799003bfce0b46a19eb.gif)
 𓈒⟡₊⋆∘𝓑𝓲𝓼𝓮𝔁𝓾𝓪𝓵𓏲𝄢
           ‌                ❦
 
