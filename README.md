@@ -2,7 +2,7 @@ You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![FLINS!](86357c5f08f8033682899450f2d1bf92.gif)
+![DEPRESSION!](a9d78fba52106b5308b79b8f177ebee0.gif)
 
    
    ੈ✧̣̇˳·˖✶   ✦　
@@ -16,7 +16,7 @@ You can call me Oliver or Oli!♥︎•``,,''
 𝙷𝚎/𝚑𝚒𝚖 ⋆.˚ ᡣ𐭩 .𖥔˚
 ₊ ᵎᵎ 🍎 ⋅ ˚✮
 
-![MEOW!](905478058f88a799003bfce0b46a19eb.gif)
+![MEOW!](0bf69368825b493252f50956e934d676.gif)
 𓈒⟡₊⋆∘𝓑𝓲𝓼𝓮𝔁𝓾𝓪𝓵𓏲𝄢
           ‌                ❦
 
