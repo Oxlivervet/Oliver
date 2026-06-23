@@ -2,8 +2,8 @@
 You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![GAYNESS!](923ec4b2a3e78209add40869683fcdf4.jpg)
+　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
+![UM!](7aee757f73c3f824de01df001e32f97c.jpg)
 
    
    ੈ✧̣̇˳·˖✶   ✦　
