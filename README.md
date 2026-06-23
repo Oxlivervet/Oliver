@@ -1,3 +1,4 @@
+![PIERROT!](aa05e5bf992e46522c48412d44b0ffd0.jpg)
 You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
