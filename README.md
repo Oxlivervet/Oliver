@@ -3,7 +3,7 @@ You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![IDKWHATTHISIS!](f2f0533ff740016ea27df1dc7f09c015.jpg)
+![BLUE!](668deb50cac1e4b8c9951484153f7e27.jpg)
 
    
    ੈ✧̣̇˳·˖✶   ✦　
