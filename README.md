@@ -1,9 +1,9 @@
-![PRESSURE!](5f8901e352e0d4ffc2c1cf6bf385673c.jpg)
+![UM!](5f8901e352e0d4ffc2c1cf6bf385673c.jpg)
 You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![BLUE!](668deb50cac1e4b8c9951484153f7e27.jpg)
+![DONTKNOW!](5f8901e352e0d4ffc2c1cf6bf385673c.jpg)
 
    
    ੈ✧̣̇˳·˖✶   ✦　
@@ -17,7 +17,7 @@ You can call me Oliver or Oli!♥︎•``,,''
 𝙷𝚎/𝚑𝚒𝚖 ⋆.˚ ᡣ𐭩 .𖥔˚
 ₊ ᵎᵎ • ⋅ ˚✮
 
-![FISH!](1c7ad9bc3bb97ebbf58a2fd85dcc3ee2.gif)
+![JELLYFISH!](b8e7868de4e68b777fcbcefbecaeabc8.gif)
 𓈒⟡₊⋆∘𝓑𝓲𝓼𝓮𝔁𝓾𝓪𝓵𓏲𝄢
           ‌                ❦
 
