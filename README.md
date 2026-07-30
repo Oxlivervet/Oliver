@@ -1,9 +1,9 @@
-![UM!](5f8901e352e0d4ffc2c1cf6bf385673c.jpg)
+![UM!](d095c602477dfbb070da6939ee252c27.jpg)
 You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![DONTKNOW!](5f8901e352e0d4ffc2c1cf6bf385673c.jpg)
+![DONTKNOW!](697fa37a2b30416da732002b051ae3e6.jpg)
 
    
    ੈ✧̣̇˳·˖✶   ✦　
