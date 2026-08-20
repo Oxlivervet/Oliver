@@ -1,9 +1,9 @@
-![UM!](d095c602477dfbb070da6939ee252c27.jpg)
+![UM!](a10a68eafcd0a1eff051d3bf7e404058.jpg)
 You can call me Oliver or Oli!♥︎•``,,''
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 
-![DONTKNOW!](697fa37a2b30416da732002b051ae3e6.jpg)
+![DONTKNOW!](6132f6447ccf0a8dc8493b853420869c.jpg)
 
    
    ੈ✧̣̇˳·˖✶   ✦　
@@ -17,7 +17,7 @@ You can call me Oliver or Oli!♥︎•``,,''
 𝙷𝚎/𝚑𝚒𝚖 ⋆.˚ ᡣ𐭩 .𖥔˚
 ₊ ᵎᵎ • ⋅ ˚✮
 
-![JELLYFISH!](b8e7868de4e68b777fcbcefbecaeabc8.gif)
+![WATER!](2d88a7d0fdd3259a6e9a5a123c979cf2.gif)
 𓈒⟡₊⋆∘Aroace𝄢
           ‌                ❦
 
