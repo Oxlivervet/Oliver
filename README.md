@@ -1,9 +1,9 @@
-![UM!](9f95df42595f412749ff43f0154ce026.jpg)
+![BUNNIES!](9f95df42595f412749ff43f0154ce026.jpg)
 I would very much appreciate it if you call me by the name Oliver.
 
 ◆
 
-![DONTKNOW!](595a48299f54a50c16797b94ba5e84c0.jpg)
+![IDK!](595a48299f54a50c16797b94ba5e84c0.jpg)
 
    please do not tell me Sexual/Flirty jokes if we have just met<3.
 
